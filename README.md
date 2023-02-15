@@ -8,3 +8,4 @@ Because of that, early access of QV3 beta builds will be available in Discord fo
 ![photo_2023-02-13_16-54-49](https://user-images.githubusercontent.com/124604734/218476524-95b34cf0-ca7c-4d4d-be29-806626d40ff2.jpg)
 ![photo_2023-01-04_22-07-29](https://user-images.githubusercontent.com/124604734/219112215-62afbc3d-6a32-4783-a48c-e6c577ed7547.jpg)
 ![photo_2023-01-04_22-08-16](https://user-images.githubusercontent.com/124604734/219112236-c9ef1edb-7ff7-4757-848f-1287bd62a13f.jpg)
+![Grand-Theft-Auto-V-RT-scaled](https://user-images.githubusercontent.com/124604734/219112572-9be57457-5dc0-4830-8dd6-94b448e968f8.jpg)
